@@ -76,5 +76,4 @@ We may update this policy from time to time. We will update the “Effective dat
 
 If you have questions about this Privacy Policy, contact:
 
-- **Email:** mdgooogleplaaysgunes@gmail.com
-- **Developer/Publisher:** SUNTECH
+ **Email:** gooogleplaays@gmail.com
